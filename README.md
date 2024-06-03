@@ -8,4 +8,4 @@ Meu nome é Ellen Costa
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos
 
 - ### Você pode entrar em contato comigo 📪
-- ellenc_osta
+- instagram: ellenc_osta ou email: cristinee261@gmail.com
